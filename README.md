@@ -2,7 +2,8 @@
 </p>
 <br><br><br>
 
-# ZERO DOLLAR CRYPTOCARD https://zerodollar.app
+# ZERO DOLLAR CRYPTOCARD
+https://worldpeaceenginelabs.org/zero-dollar-coin/
 
 ### The ZeroDollar is a “currency” that is based on a valueless unit-system, just like in the movies.
 
